@@ -11,4 +11,4 @@ Telegram: @ivano0137
 Discord: Ivano#1000
 
 ## Proof of concept
-Will make video soon :)
+https://www.youtube.com/watch?v=2r_B1NJwhBY
